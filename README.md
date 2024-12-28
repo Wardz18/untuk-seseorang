@@ -1,0 +1,2 @@
+# untuk-seseorang
+untuk kamu
